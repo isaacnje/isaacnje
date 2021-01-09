@@ -7,6 +7,6 @@
 - 💬 Ask me about ...
 - 📫 How to reach me: 
   You can reach me at ing23@my.bcit.ca
-- 😄 Pronouns:  
+- 😄 Pronouns: 
   He/Him  
 - ⚡ Fun fact: 
