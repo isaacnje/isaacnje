@@ -9,4 +9,4 @@
   You can reach me at ing23@my.bcit.ca
 - 😄 Pronouns:  
   He/Him  
--⚡ Fun fact: 
+- ⚡ Fun fact: 
